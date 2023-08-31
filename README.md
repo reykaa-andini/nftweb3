@@ -1,4 +1,4 @@
-# MY NFT WEB3
+# MY NFTS WEB3
 - 0xreyka (1).jpg
 - 0xreyka (2).jpg
 - 0xreyka (3).jpg
