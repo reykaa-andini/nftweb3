@@ -1,4 +1,4 @@
-# MY NFT WEB3 Profile
+# MY NFT WEB3 Profiles
 
 - 0xreyka (1).jpg
 - 0xreyka (2).jpg
